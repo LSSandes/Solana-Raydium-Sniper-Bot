@@ -1,1 +1,1 @@
-montecristodev0516@gmail.com
+Welcome! my solana raydium sinper bot
